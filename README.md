@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning API
 - 💞️ I’m looking to collaborate on Linkedin and Mail.
 - 📫 How to reach me
-- Linkedin : Samyak Vansh 
+- Linkedin : Samyak Vansh
 - gmail: iamsamyakvansh@gmail.com
 - Instagram : @i_am_samyak_vansh
 - 😄 Pronouns: He/Him
